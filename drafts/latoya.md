@@ -10,18 +10,18 @@ When LaToya asked me to speak at her ceremony, I thought about sharing  all the 
 
 But instead of just speaking for myself, I want to take a few moments to share with you some words from the Sit Room family, that we think describe LaToya:
 
-Witty
-Strong
-Savvy
-Steady
-Persistence
-Spunky
-Confident
-Expressive (eyebrows)
-Incredible
-Outgoing
-Focused
-Graceful
-Delightful
+- Witty
+- Strong
+- Savvy
+- Steady
+- Persistence
+- Spunky
+- Confident
+- Expressive (eyebrows)
+- Incredible
+- Outgoing
+- Focused
+- Graceful
+- Delightful
 
 LaToya, you are all that and more - straight outta WHSR.  The Navy and the White House are greater for your service; and we, and the Nation, are thankful for all you've done, and can't wait to see what you've got in store in the future.  Congratulations on a successful career and a well-deserved retirement.
